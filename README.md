@@ -1,1 +1,0 @@
-# Maximillian-svg-logo-maker
